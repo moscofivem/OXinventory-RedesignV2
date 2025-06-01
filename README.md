@@ -1,2 +1,0 @@
-# OXinventory-RedesignV2
-
